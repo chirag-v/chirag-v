@@ -8,4 +8,4 @@
 
 📬 Get in Touch: Reach out to me at chirag740@gmail.com. I’m eager to discuss potential collaborations, share ideas, and build something impactful together.
 
-🌟 Stay Tuned: Keep an eye on our documentation and updates for the latest progress!
+🌟 Stay Tuned: Keep an eye on our documentation at https://openrxerp.com and updates for the latest progress!
